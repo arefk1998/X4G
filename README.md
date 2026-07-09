@@ -1,5 +1,5 @@
-آموزش ویدیویی :
-https://www.youtube.com/watch?v=kx06wLWldE8&t=4s
+کانال یوتوب :
+[https://www.youtube.com/watch?v=kx06wLWldE8&t=4s](https://www.youtube.com/@X4GHUB)
 
 
 
